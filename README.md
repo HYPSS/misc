@@ -1,2 +1,2 @@
-# Misc.github.io
+# misc
 WhAt DoEs It SoUnD LiKe IdIoT!
